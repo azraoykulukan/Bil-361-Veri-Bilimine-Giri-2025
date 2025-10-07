@@ -1,1 +1,1 @@
-# Bil-361-Veri-Bilimine-Giri-2025
+# Bil-361-Veri-Bilimine-Giris-2025
